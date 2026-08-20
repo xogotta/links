@@ -1,1 +1,1 @@
-Social links for theabyssstalker network!
+Social links for xogotta network!
